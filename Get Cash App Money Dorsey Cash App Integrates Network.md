@@ -1,3 +1,3 @@
-Cash App - https://appbitly.com/KVNCO
+Cash App - https://t.co/QPP9nqqTkn
 
-Cash App Plus Plus - https://appbitly.com/ietJz
+Cash App Plus Plus - https://t.co/tchqWa8b8q
